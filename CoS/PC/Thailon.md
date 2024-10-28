@@ -1,0 +1,8 @@
+### mezzelfo warlock - patrono Celestiale
+Figlio di due poveri ladri, mezzelfo cresciuto tra gli umani abituato a dover lottare per avere anche le più piccole delle cose. Dai genitori imparo a giocare con i lucchetti, a riconoscere gli altri criminali e a muovermi silenziosamente. In seguito alla cattura di padre e madre per punire loro vengo invece punito io, mi viene afflitta una maledizione a cui non sembrava esserci rimedio. L'unica cosa che mi ha potuto salvare è stato l'intervento di una creature molto potente, un celestiale, che in cambio del mio aiuto è riuscito ad eliminare, o almeno a fermare momentaneamente, la maledizione che mi affliggeva. Il mio compito ora è quello di vagare per il piano materiale dove lui non può arrivare, cercando di raccogliere quanta più conoscenza possibile e di trascriverla su un grande libro che mi è stato consegnando dopo aver guadagnato la sua fiducia. Il mio viaggio è supportato dal mio patrono, che mi fornisce tutti i miei poteri e che veglia su di me in ogni momento. La mia paura più grande è quella di deluderlo, perdere tutto ciò che ho e ricominciare ad essere afflitto dalla maledizione che mi perseguita ancora nei miei peggiori incubi.
+### Personalità
+
+### Ideali
+
+### Paure
+Deludere il mio patrono e che la maledizione su di me riprenda ad agire (non ho ancora pensato a cosa potrebbe essere, ma posso approfondire domani), facendo soffrire me e la mia famiglia
